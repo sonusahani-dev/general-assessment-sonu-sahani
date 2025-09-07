@@ -171,7 +171,7 @@ Copy code
 Sonu Sahani
 📧 sonusahani.dev@gmail.com
 🌐 Portfolio
-🔗 LinkedIn
+🔗 www.linkedin.com/in/sonu--sahani
 📱 +91 7080085907
 📍 Lucknow, Uttar Pradesh, India
 
